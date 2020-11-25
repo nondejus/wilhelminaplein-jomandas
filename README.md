@@ -1,1 +1,1 @@
-# de-verdwaasde-wilhelminaplein-jomandas-met-junk-fantasieen
+# verdwaasde-wilhelminaplein-jomandas-met-junk-fantasieen
